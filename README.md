@@ -1,1 +1,1 @@
-# [Page](https://amurkhoyetsyan.github.io/Player/)
+# [Page](https://amurikkhoyetsyan.github.io/Player/)
